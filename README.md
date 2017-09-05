@@ -1,5 +1,4 @@
 
-![](http://ww1.sinaimg.cn/large/77ca6427ly1fj7j7w9orjg20uc0byjzb.gif)
 
 > 脱坑指南：告诉女票这是七夕节的礼物,我敢保证这是你的最后一个七夕节。😝
 
